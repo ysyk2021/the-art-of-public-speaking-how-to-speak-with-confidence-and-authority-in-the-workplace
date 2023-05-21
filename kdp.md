@@ -2,9 +2,6 @@
 
 # Introduction
 
-Overview of The Art of Public Speaking
-====================================================
-
 Public speaking is a skill that is essential for success in the workplace. Whether presenting to colleagues, clients, or stakeholders, being able to speak with confidence and authority can enhance your professional reputation and advance your career.
 
 This book - The Art of Public Speaking: How to Speak with Confidence and Authority in the Workplace - offers practical advice and techniques for developing effective public speaking skills. We will explore topics such as speech preparation, delivery, audience engagement, and overcoming nervousness and anxiety.

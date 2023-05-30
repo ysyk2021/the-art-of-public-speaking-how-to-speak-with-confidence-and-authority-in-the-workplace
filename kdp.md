@@ -10,7 +10,7 @@ In this book, we will also examine the importance of body language, vocal delive
 
 Whether you are a seasoned speaker or just beginning to develop your public speaking skills, this book offers valuable insights and perspectives on how to speak with confidence and authority in the workplace. By mastering the art of public speaking, you can become a more effective communicator, build your professional brand, and achieve greater success in your career.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 

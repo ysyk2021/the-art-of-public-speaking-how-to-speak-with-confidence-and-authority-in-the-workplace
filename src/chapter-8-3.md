@@ -1,5 +1,3 @@
-Continuously Learning and Improving
-=====================================================================================
 
 Public speaking is an ongoing learning process, and it's important to continuously seek out opportunities for growth and development. In this chapter, we will discuss the importance of continuously learning and improving in public speaking.
 

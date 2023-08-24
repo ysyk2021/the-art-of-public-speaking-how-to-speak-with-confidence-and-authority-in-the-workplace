@@ -1,5 +1,3 @@
-Identifying Your Audience
-=============================================================
 
 Before you can deliver an effective speech, it's essential to identify your audience and tailor your message accordingly. In this chapter, we will discuss the importance of identifying your audience and how to do so successfully.
 

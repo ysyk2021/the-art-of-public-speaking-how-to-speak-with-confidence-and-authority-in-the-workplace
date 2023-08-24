@@ -1,5 +1,3 @@
-Rehearsing and Testing Your Visual Aids
-=================================================================================================
 
 Visual aids and supporting materials can significantly enhance any presentation, but only if they are created carefully and used correctly. In this chapter, we will discuss strategies for creating effective visual aids and supporting materials, and the importance of rehearsing and testing them.
 

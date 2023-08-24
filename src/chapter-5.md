@@ -1,5 +1,3 @@
-Chapter 5: Preparing for Different Types of Presentations
-=========================================================
 
 In order to be an effective public speaker, it's important to be able to prepare for and deliver presentations in a variety of contexts. In this chapter, we will explore how to prepare for different types of presentations, including formal presentations, meetings and discussions, addressing small groups and teams, and communicating with clients and customers.
 

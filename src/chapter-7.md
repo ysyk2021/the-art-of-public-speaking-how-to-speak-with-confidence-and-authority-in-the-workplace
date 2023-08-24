@@ -1,5 +1,3 @@
-Chapter 7: Handling Challenging Situations and Difficult Audiences
-==================================================================
 
 As a public speaker in the workplace, you may encounter challenging situations and difficult audiences. In this chapter, we will explore strategies for handling disruptions, addressing resistance and opposition, managing hostility and conflict, and staying calm and professional in challenging situations.
 

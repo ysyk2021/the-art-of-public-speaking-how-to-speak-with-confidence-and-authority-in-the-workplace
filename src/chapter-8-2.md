@@ -1,5 +1,3 @@
-Reflection and Self-Evaluation
-================================================================================
 
 Even after you've become a confident and skilled public speaker, there is always room for improvement. In this chapter, we will discuss the importance of reflection and self-evaluation in continuous improvement.
 

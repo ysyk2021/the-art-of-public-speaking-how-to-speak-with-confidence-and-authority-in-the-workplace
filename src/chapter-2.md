@@ -1,5 +1,3 @@
-Chapter 2: Developing Your Message
-==================================
 
 Developing a clear and impactful message is key to delivering a successful presentation in the workplace. In this chapter, we will explore strategies for developing your message.
 

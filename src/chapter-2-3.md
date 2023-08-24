@@ -1,5 +1,3 @@
-Tailoring Your Message to Your Audience
-===========================================================================
 
 One of the most important aspects of effective public speaking is developing a message that resonates with your audience. In order to do this, you must first understand who your audience is and what their needs and interests are. In this chapter, we will discuss how to develop a message that is tailored to your audience.
 

@@ -1,5 +1,3 @@
-Chapter 6: Creating Visual Aids and Supporting Materials
-========================================================
 
 Creating effective visual aids and supporting materials can enhance your message and engage your audience. In this chapter, we will explore the best practices for designing and using visual aids and supporting materials in a workplace presentation.
 

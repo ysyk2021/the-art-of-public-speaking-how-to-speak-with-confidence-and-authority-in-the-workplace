@@ -1,5 +1,3 @@
-Vocal Techniques for Effective Delivery
-=======================================================================
 
 Delivery techniques are a critical component of effective public speaking. In this chapter, we will focus on vocal techniques that can help you deliver your message with clarity, confidence, and authority.
 

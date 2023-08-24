@@ -1,5 +1,3 @@
-Understanding the Importance of Public Speaking in the Workplace
-=========================================================================================
 
 Public speaking is an essential skill in the workplace. It's not just reserved for executives or team leaders; it's a skill that everyone should master. In this chapter, we will discuss the importance of public speaking in the workplace.
 

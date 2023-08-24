@@ -1,5 +1,3 @@
-Chapter 3: Overcoming Anxiety and Nervousness
-=============================================
 
 Speaking in public can be nerve-wracking, even for seasoned professionals. In this chapter, we will explore strategies for overcoming anxiety and nervousness when speaking in the workplace.
 

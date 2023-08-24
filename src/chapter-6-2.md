@@ -1,5 +1,3 @@
-Preparing Handouts and Supporting Materials
-=====================================================================================================
 
 Effective visual aids and supporting materials can enhance a presentation and help engage an audience. This chapter will discuss strategies for creating visual aids and supporting materials, with a focus on preparing handouts and other materials that can help maximize the impact of a presentation.
 

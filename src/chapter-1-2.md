@@ -1,5 +1,3 @@
-Common Fears and Misconceptions About Public Speaking
-==============================================================================
 
 Public speaking is a skill that is highly valued in the workplace, but it is also one that many people find intimidating or even terrifying. In this chapter, we will explore some of the common fears and misconceptions surrounding public speaking.
 

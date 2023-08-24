@@ -1,5 +1,3 @@
-Preparation Techniques for Overcoming Nervousness
-================================================================================================
 
 Nervousness and anxiety can be significant obstacles to effective public speaking. However, with proper preparation and techniques, it is possible to overcome these challenges and deliver a confident and engaging presentation. This chapter will discuss strategies for overcoming nervousness and anxiety when speaking in public.
 

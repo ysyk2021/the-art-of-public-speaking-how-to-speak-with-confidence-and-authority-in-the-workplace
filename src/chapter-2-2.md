@@ -1,5 +1,3 @@
-Crafting a Clear and Concise Message
-========================================================================
 
 Crafting a clear and concise message is a crucial part of effective public speaking. In this chapter, we will discuss how to develop a message that is easy for your audience to understand and remember.
 

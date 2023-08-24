@@ -1,5 +1,3 @@
-Communicating with Clients and Customers
-===================================================================================================
 
 Communicating effectively with clients and customers is an essential part of many workplaces. In this chapter, we will discuss how to prepare for presentations that are focused on communicating with clients and customers.
 

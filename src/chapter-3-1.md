@@ -1,5 +1,3 @@
-Understanding the Causes of Nervousness
-======================================================================================
 
 Anxiety and nervousness are common experiences for many people when speaking in public. In this chapter, we will discuss some of the causes of nervousness and how to overcome them to become a more confident and effective speaker.
 

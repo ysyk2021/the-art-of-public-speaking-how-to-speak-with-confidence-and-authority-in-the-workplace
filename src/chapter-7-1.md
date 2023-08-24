@@ -1,5 +1,3 @@
-Dealing with Disruptions and Distractions
-=============================================================================================================
 
 As a public speaker, you may face challenging situations and difficult audiences that can disrupt or distract from your message. In this chapter, we will discuss strategies for handling disruptions and distractions during a speech or presentation.
 

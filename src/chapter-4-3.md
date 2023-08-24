@@ -1,5 +1,3 @@
-Utilizing Eye Contact
-=====================================================
 
 Effective public speaking requires more than just a well-written speech. Delivery is a critical component of successful speeches in the workplace. One important aspect of delivery is eye contact. In this chapter, we will explore the role of eye contact and how it can be used to enhance your message and connect with your audience.
 

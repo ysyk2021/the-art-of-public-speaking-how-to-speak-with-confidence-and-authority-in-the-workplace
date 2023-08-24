@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-=========================================================================================
 
 Effective public speaking is a skill that requires consistent practice, dedication, and continuous improvement. In this chapter, we will explore strategies for evaluating your speeches, tracking your progress, and measuring results to identify areas for improvement and refine your skills.
 

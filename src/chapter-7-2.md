@@ -1,5 +1,3 @@
-Addressing Resistance and Opposition
-========================================================================================================
 
 In any public speaking engagement, it is not uncommon to encounter challenging situations and difficult audiences. Whether it's resistance or opposition from the audience, it's important to handle these situations tactfully and effectively. In this chapter, we will explore strategies for addressing resistance and opposition when presenting in the workplace.
 

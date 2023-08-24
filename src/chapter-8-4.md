@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-======================================================================================
 
 As a public speaker in the workplace, it is essential to continuously improve your skills and evaluate your performance to adapt to changes in the workplace. In this chapter, we will explore the importance of continuous improvement and evaluation and how to implement them into your public speaking practice.
 

@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Presentation
-=======================================================================================================
 
 Visual aids and supporting materials are essential components of effective presentations. This chapter will discuss strategies for creating compelling visual aids and supporting materials using technology.
 

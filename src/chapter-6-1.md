@@ -1,5 +1,3 @@
-Designing Effective Slides and Visuals
-================================================================================================
 
 In today's workplace, creating effective visual aids and supporting materials is an essential part of delivering a successful presentation. When done correctly, these materials can effectively reinforce key messages, enhance understanding, and keep your audience engaged.
 

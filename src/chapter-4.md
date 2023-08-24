@@ -1,5 +1,3 @@
-Chapter 4: Delivery Techniques
-==============================
 
 A successful public speaker not only has a well-crafted message but also delivers it in a way that captivates and engages the audience. In this chapter, we will explore several delivery techniques that can help you become an effective public speaker in the workplace.
 

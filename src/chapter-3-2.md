@@ -1,5 +1,3 @@
-Strategies for Managing Anxiety
-==============================================================================
 
 Anxiety and nervousness can be significant obstacles to effective public speaking. However, there are several strategies that you can use to manage your anxiety and deliver a confident and engaging presentation. This chapter will discuss techniques for managing anxiety when speaking in public.
 

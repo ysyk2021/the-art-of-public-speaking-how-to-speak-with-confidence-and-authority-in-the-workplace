@@ -1,5 +1,3 @@
-Addressing Small Groups and Teams
-============================================================================================
 
 Public speaking does not always involve a large audience. In many workplace scenarios, speakers are required to address small groups and teams. This chapter will discuss strategies for preparing for presentations given to small groups and teams.
 

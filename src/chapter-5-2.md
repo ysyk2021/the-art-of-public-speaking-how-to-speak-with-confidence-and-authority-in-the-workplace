@@ -1,5 +1,3 @@
-Leading Meetings and Discussions
-===========================================================================================
 
 In the workplace, leading meetings and discussions is a common task that requires strong presentation skills. In this chapter, we will explore strategies for preparing for and delivering effective meetings and discussions.
 

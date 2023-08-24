@@ -1,5 +1,3 @@
-Visualization and Positive Self-Talk
-===================================================================================
 
 One of the greatest challenges in public speaking is overcoming anxiety and nervousness. Fear of public speaking can be paralyzing, causing speakers to freeze up or forget their words. In this chapter, we will explore strategies for overcoming anxiety and nervousness through visualization and positive self-talk.
 

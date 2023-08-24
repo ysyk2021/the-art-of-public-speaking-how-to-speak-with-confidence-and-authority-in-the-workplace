@@ -1,5 +1,3 @@
-Delivering Formal Presentations
-==========================================================================================
 
 Formal presentations are a common occurrence in the workplace. These presentations typically involve a larger audience and require more formal language and structure. This chapter will discuss strategies for preparing for formal presentations.
 

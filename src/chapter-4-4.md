@@ -1,5 +1,3 @@
-Handling Questions and Interruptions
-====================================================================
 
 Handling questions and interruptions can be challenging for speakers, but with proper preparation and delivery techniques, it is possible to handle them smoothly and effectively. This chapter will discuss strategies for handling questions and interruptions during a public-speaking engagement.
 

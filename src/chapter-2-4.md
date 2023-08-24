@@ -1,5 +1,3 @@
-Using Stories and Examples to Illustrate Your Points
-========================================================================================
 
 Using stories and examples is a powerful way to illustrate your points and make your message more engaging and memorable. In this chapter, we will discuss how to effectively incorporate stories and examples into your public speaking.
 

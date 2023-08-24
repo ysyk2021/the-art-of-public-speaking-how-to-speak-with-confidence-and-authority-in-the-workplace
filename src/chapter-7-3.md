@@ -1,5 +1,3 @@
-Managing Hostility and Conflict
-===================================================================================================
 
 Public speaking can be a challenging task, especially when dealing with difficult audiences or challenging situations. Hostility and conflict can arise at any time during a speech, leading to a breakdown in communication and engagement. In this chapter, we will explore strategies for managing difficult audiences and handling challenging situations to deliver effective speeches in the workplace.
 

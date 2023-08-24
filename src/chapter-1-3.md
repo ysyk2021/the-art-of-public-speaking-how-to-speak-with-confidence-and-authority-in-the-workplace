@@ -1,5 +1,3 @@
-Benefits of Effective Public Speaking
-==============================================================
 
 Public speaking is an essential skill in the workplace and beyond. By effectively delivering a message, you can influence others, build rapport and trust, and establish credibility. In this chapter, we will discuss the benefits of effective public speaking.
 

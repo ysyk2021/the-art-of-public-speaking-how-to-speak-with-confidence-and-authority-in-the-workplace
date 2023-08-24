@@ -1,5 +1,3 @@
-Staying Calm and Professional
-=================================================================================================
 
 As a public speaker in the workplace, you may face challenging situations or difficult audiences that can make delivering your message more difficult. In this chapter, we will explore strategies for handling these situations with professionalism and composure, and ensuring that your message is communicated effectively.
 

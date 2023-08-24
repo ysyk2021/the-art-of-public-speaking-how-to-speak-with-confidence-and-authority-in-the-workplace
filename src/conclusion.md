@@ -1,5 +1,4 @@
 
-
 Congratulations on reaching the end of The Art of Public Speaking: How to Speak with Confidence and Authority in the Workplace! In this final chapter, we will recap some of the key techniques discussed in this book and provide some final thoughts and advice.
 
 Recap of Key Public Speaking Techniques

@@ -1,5 +1,4 @@
-Chapter: Addressing Small Groups and Teams
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the art of addressing small groups and teams in the workplace. Speaking with confidence and authority in these settings requires a unique set of skills and strategies. Whether you are leading a team meeting, facilitating a brainstorming session, or delivering a presentation to a small group, understanding how to engage and connect with your audience is crucial. Let's delve into techniques for effectively addressing small groups and teams.
 

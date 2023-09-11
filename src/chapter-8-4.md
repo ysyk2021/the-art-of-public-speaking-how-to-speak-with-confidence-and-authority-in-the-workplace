@@ -1,5 +1,4 @@
-Chapter 12: Adapting to Changes in the Workplace
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of adapting to changes in the workplace and how it relates to public speaking. As workplaces experience constant evolution, being able to adjust and thrive amidst change is crucial for maintaining confidence and authority when communicating with others.
 

@@ -1,5 +1,4 @@
-Chapter: Crafting a Clear and Concise Message
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of crafting a clear and concise message for speaking with confidence and authority in the workplace. A well-crafted message ensures that your audience understands and retains the key points of your speech. By employing strategies for clarity and conciseness, you can effectively communicate your ideas, engage your listeners, and leave a lasting impact. Let's delve into techniques for crafting a clear and concise message.
 

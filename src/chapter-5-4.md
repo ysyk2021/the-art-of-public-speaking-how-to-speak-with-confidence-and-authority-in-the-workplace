@@ -1,5 +1,4 @@
-Chapter 7: Communicating with Clients and Customers
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential skills required to effectively communicate with clients and customers in the workplace. Building strong relationships with clients and providing excellent customer service are crucial aspects of any successful business.
 

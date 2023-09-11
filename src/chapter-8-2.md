@@ -1,5 +1,4 @@
-Chapter 10: Reflection and Self-Evaluation
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of reflection and self-evaluation in the context of public speaking. By engaging in thoughtful introspection and evaluating our own performances, we can continuously improve our speaking skills, boost confidence, and enhance our ability to communicate with authority in the workplace.
 

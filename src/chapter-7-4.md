@@ -1,5 +1,4 @@
-Chapter 8: Staying Calm and Professional
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of staying calm and professional while delivering presentations or engaging in public speaking situations within the workplace. Maintaining composure and professionalism enhances your credibility, earns respect, and allows you to effectively convey your message.
 

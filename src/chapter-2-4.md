@@ -1,5 +1,4 @@
-Chapter: Using Stories and Examples to Illustrate Your Points
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the impactful technique of using stories and examples to enhance your public speaking skills and effectively communicate with confidence and authority in the workplace. Stories and examples have a unique power to engage your audience, make your message relatable, and provide vivid illustrations that reinforce key points. By mastering the art of storytelling and incorporating relevant examples, you can captivate your listeners and leave a lasting impression. Let's delve into strategies and techniques for using stories and examples to illustrate your points.
 

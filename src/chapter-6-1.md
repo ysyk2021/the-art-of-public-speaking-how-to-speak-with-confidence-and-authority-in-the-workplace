@@ -1,5 +1,4 @@
-Chapter: Designing Effective Slides and Visuals
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of designing effective slides and visuals to enhance your public speaking skills and deliver impactful presentations in the workplace. Visual aids play a significant role in engaging your audience, reinforcing key messages, and helping them understand complex information. By adopting best practices for slide design and utilizing visuals strategically, you can elevate your presentation skills and leave a lasting impression. Let's delve into strategies and techniques for designing effective slides and visuals.
 

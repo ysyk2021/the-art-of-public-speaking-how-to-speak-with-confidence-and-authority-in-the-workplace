@@ -1,5 +1,4 @@
-Chapter 7: Tracking Progress and Measuring Results
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of tracking progress and measuring results in the context of public speaking. By implementing effective strategies for evaluation and measurement, you can gauge your growth, identify areas for improvement, and ensure that your efforts are leading to increased confidence and authority in the workplace.
 

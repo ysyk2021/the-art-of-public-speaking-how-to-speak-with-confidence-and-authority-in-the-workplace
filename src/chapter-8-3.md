@@ -1,5 +1,4 @@
-Chapter 8: Continuously Learning and Improving
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of continuous learning and improvement in the realm of public speaking. By adopting a mindset of growth and actively seeking opportunities to expand our knowledge and skills, we can enhance our confidence, authority, and overall effectiveness as workplace communicators.
 

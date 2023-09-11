@@ -1,5 +1,4 @@
-Chapter: Tailoring Your Message to Your Audience
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of tailoring your message to your audience in order to speak with confidence and authority in the workplace. Understanding the unique characteristics, needs, and preferences of your audience allows you to craft a message that resonates with them, captures their attention, and effectively communicates your ideas. By employing strategies for message customization, you can ensure that your speeches are impactful and achieve the desired outcomes. Let's dive into techniques for tailoring your message to your audience.
 

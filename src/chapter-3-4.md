@@ -1,5 +1,4 @@
-Chapter: Visualization and Positive Self-Talk
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful techniques of visualization and positive self-talk to enhance your public speaking skills and cultivate confidence and authority in the workplace. Visualization involves creating vivid mental images of success, while positive self-talk entails using affirmations and encouraging thoughts to build self-confidence. By harnessing these practices, you can overcome anxiety, boost your performance, and deliver impactful speeches with conviction. Let's delve into the strategies for incorporating visualization and positive self-talk into your public speaking journey.
 

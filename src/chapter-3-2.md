@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Managing Anxiety
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for managing anxiety when speaking in public or addressing an audience in the workplace. Public speaking anxiety is a common challenge that can hinder confidence and authority. By employing these strategies, you can overcome anxiety and deliver impactful speeches with poise.
 

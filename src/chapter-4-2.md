@@ -1,5 +1,4 @@
-Chapter: Vocal Techniques for Effective Delivery
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the vital role of vocal techniques in delivering speeches and presentations with confidence and authority in the workplace. Your voice is a powerful tool that can captivate your audience, convey emotions, and effectively communicate your messages. By mastering various vocal techniques, you can enhance your delivery, engage your listeners, and leave a lasting impression. Let's delve into strategies and techniques for using your voice effectively.
 

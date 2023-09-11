@@ -1,5 +1,4 @@
-Chapter: Utilizing Eye Contact
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful tool of eye contact and its role in speaking with confidence and authority in the workplace. Establishing and maintaining meaningful eye contact is key to building connections, engaging your audience, and conveying credibility. When used effectively, eye contact can enhance your communication skills and leave a lasting impression. Let's delve into strategies and techniques for utilizing eye contact to speak with confidence and authority.
 

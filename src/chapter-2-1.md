@@ -1,5 +1,4 @@
-Chapter: Identifying Your Audience
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial task of identifying your audience in order to deliver impactful speeches with confidence and authority in the workplace. Understanding your audience's needs, preferences, and characteristics is essential for tailoring your message and effectively engaging them. By conducting thorough audience analysis and adopting appropriate strategies, you can ensure that your speech resonates with your listeners and achieves its intended objectives. Let's delve into techniques and considerations for identifying your audience.
 

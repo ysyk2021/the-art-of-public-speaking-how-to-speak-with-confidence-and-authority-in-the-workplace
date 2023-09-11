@@ -1,5 +1,4 @@
-Chapter: Managing Hostility and Conflict
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively managing hostility and conflict when speaking with confidence and authority in the workplace. Public speaking can sometimes lead to challenging situations where emotions run high, tensions escalate, or conflicts arise. Learning how to navigate and address hostility and conflict is crucial for maintaining productive communication and preserving professional relationships. Let's delve into techniques for managing these difficult situations with grace and effectiveness.
 

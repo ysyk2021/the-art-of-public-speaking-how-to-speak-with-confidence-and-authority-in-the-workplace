@@ -1,5 +1,4 @@
-Chapter: Rehearsing and Testing Your Visual Aids
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of rehearsing and testing your visual aids to deliver impactful presentations with confidence and authority in the workplace. Visual aids can enhance your message, provide clarity, and engage your audience. However, their effectiveness relies on careful preparation, rehearsal, and testing. By following a systematic approach to rehearsing and testing your visual aids, you can ensure that they seamlessly support your presentation and contribute to your overall success. Let's delve into strategies and techniques for rehearsing and testing your visual aids.
 

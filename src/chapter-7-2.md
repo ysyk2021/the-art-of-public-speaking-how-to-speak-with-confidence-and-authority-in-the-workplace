@@ -1,5 +1,4 @@
-Chapter: Addressing Resistance and Opposition
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively addressing resistance and opposition when speaking with confidence and authority in the workplace. Public speaking often involves encountering differing opinions, skepticism, or even direct opposition from individuals or groups. Learning how to navigate and address these challenges is essential for maintaining credibility and achieving your communication goals. Let's delve into techniques for handling resistance and opposition with grace and effectiveness.
 
